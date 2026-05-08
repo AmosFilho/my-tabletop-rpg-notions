@@ -1,2 +1,3 @@
-![[Pasted image 20260508174230.png]]
-A historia do Império de Eisenstein não começa com uma guerra, mas com um tratado. Quando Klaus Eizenfaust, senhor do domínio de Shtalburg se casou com Kristen Feuerherz, Senhora do domínios de Feuerburg; a única alianca enquanto reinos e domínios se digladiavam ao seu redor em busca de recursos e conquistas. Sentindo que está aliança podia alterar o equilíbrio de poder, diversos domínios declararam guerra aos aliados enquanto outros assistiram à distância.
+![[Pasted image 20260508174230.png|153]]
+
+A historia do Império de Eisenstein não começa com uma guerra, mas com um tratado. Quando Klaus Eizenfaust, senhor do domínio de Shtalburg se casou com Kristen Feuerherz, Senhora do domínios de Feuerburg; a única alianca enquanto reinos e domínios se digladiavam ao seu redor em busca de recursos e conquistas. Sentindo que está aliança podia alterar o equilíbrio de poder, diversos domínios declararam guerra aos aliados enquanto outros assistiram à distância. [[Imperador Angus Stalhertz]]
