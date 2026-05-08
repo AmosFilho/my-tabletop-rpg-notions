@@ -1,0 +1,1 @@
+Grupo de guerreiros da nação tecnológica de Astana. Uma milícia responsável por defender a nação das ameaças naturais e estrangeiras que buscam os conhecimentos adquiridos pelos maiores estudiosos de Zaelis.
