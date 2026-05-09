@@ -1,0 +1,1 @@
+Uma cidade-fortaleza esculpida no mármore branco de uma montanha costeira, cujo nome significa “Coração”.

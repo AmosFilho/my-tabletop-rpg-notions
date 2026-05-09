@@ -1,0 +1,3 @@
+Titãs eram vigias, de entidades inomináveis, que residem em Zaelis. No início da humanidade, todos os povos vivam em guerras constantes cheias de mortes e sofrimento. Ultros, um humano de um dos povos antigos, fez um acordo com o Titã das trevas para se tornar um deus mas em troca ofereceu a vida de seu povo e dos outros humanos de Zaelis. Orfélia, uma humana que se aliou ao titã da Luz, derrotou Ultros e expulsou o titã das trevas para além do espaço. Esta se tornou uma sacerdotisa e caminhou por Zaelis realizando milagres até que um dia sua alma se fundiu ao coração do titã da luz e nesse local foi construído Camelot.
+
+Devotos usam robes brancos com detalhes em amarelo.
