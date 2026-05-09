@@ -1,2 +1,3 @@
-![174](https://i.imgur.com/SEVhyOD.png)
+![](https://i.imgur.com/SEVhyOD.png)
+
 Uma nação super avançada comandada pelo presidente Rufus Shinra. Sua capital Asuka fica numa região conhecida como Sopro do Titã de Gelo, uma região montanhosa onde há alta concentração de cristais mágicos no solo, o que torna a região totalmente infértil(assim ocorre o comércio com outros reinos para a sobrevivência do povo). Após a descoberta do poder dos cristais, Gargolus Verucci, o fundador da Academia Rúnica Renascentista, criou uma força para proteger a nação da cobiça dos outros reinos. Assim nasceu a Irmandade do Aço, uma unidade de guerreiros que usam armaduras energizadas com cristais mágicos.

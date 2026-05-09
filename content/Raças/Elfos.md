@@ -1,4 +1,5 @@
 ![150](https://holly-court-347.notion.site/image/https%3A%2F%2Fimages-wixmp-ed30a86b8c4ca887773594c2.wixmp.com%2Ff%2F1bebd154-3cec-433f-96a7-8442069ab770%2Fd8ug7ah-d6a12aa6-ff9f-435f-bb3b-7bba0f99ffe3.jpg%2Fv1%2Ffit%2Fw_828%2Ch_1072%2Cq_70%2Cstrp%2Fcosmos_rpg__elves_by_olieart_d8ug7ah-414w-2x.jpg%3Ftoken%3DeyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9MTMyNiIsInBhdGgiOiIvZi8xYmViZDE1NC0zY2VjLTQzM2YtOTZhNy04NDQyMDY5YWI3NzAvZDh1ZzdhaC1kNmExMmFhNi1mZjlmLTQzNWYtYmIzYi03YmJhMGY5OWZmZTMuanBnIiwid2lkdGgiOiI8PTEwMjQifV1dLCJhdWQiOlsidXJuOnNlcnZpY2U6aW1hZ2Uub3BlcmF0aW9ucyJdfQ.bAJ1mgq1eebgXuxs3mGaS1pYyQR6O2JrS4IhjAK2LFk?table=block&id=3162d405-b86b-8079-9c92-e3cc04f358b9&spaceId=9982d405-b86b-81a6-9b18-0003467ff16c&width=450&userId=&cache=v2)
+
 Especialistas em magia arcana e extraplanar
 
 Vivem isolados em outro plano com acesso à floresta de Yasvelin
