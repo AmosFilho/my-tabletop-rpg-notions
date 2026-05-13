@@ -1,4 +1,4 @@
-![](https://file.notion.so/f/f/9982d405-b86b-81a6-9b18-0003467ff16c/893859f1-6f7b-44f6-ab48-f7c6dc7cbb6f/image.png?table=block&id=31c2d405-b86b-80d3-8576-d718f3223fef&spaceId=9982d405-b86b-81a6-9b18-0003467ff16c&expirationTimestamp=1778306400000&signature=875I2p0acnzIqi7qyRyy38yfJzZfYE109tPEHGpm4zY&downloadName=image.png)
+![](https://i.imgur.com/WSYfJ5H.jpg)
 
 - Ordem Adamantina:
     
