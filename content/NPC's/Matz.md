@@ -1,0 +1,1 @@
+Capitão maneta aposentado de Eisentein. Serviu anos o exército de eisentein até se aposentar por invalidez. Trabalhou como mercenário até conseguir dinheiro pra realizar seu sonho de abrir uma taverna, o Glória Sóbria.

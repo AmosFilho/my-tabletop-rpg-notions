@@ -1,0 +1,1 @@
+Camelot é um dos reinos com maior extensão territorial e influência em Zaelis. Adeptos da igreja de Orfélia, o reino é administrado pelo rei Vorast Havoc VIII, e o Santo Agnald, líder da igreja. Com ajuda dos seus famosos [[Távola Redonda]] e suas ordens de cavalaria, a paz em período de cessar-fogo é algo que acalma os corações de seus habitantes.

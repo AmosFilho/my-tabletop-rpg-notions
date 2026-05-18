@@ -1,0 +1,1 @@
+Humano baixinho assistente e empresário de [[Tomé, Três Tons]]. Tem uma queda por gigantes.
