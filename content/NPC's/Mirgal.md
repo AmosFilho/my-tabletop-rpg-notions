@@ -1,0 +1,1 @@
+Devoto de Neevila. Trabalha como espião pra investigar a Teocracia e descobir seus segredos. Recebeu a missão de investigar o Templo Mãe de Neevila.
