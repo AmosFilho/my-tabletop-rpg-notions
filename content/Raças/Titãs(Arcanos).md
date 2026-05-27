@@ -1,0 +1,1 @@
+Criaturas dotadas de poderes elementais fortíssimos. São ditos como os criadores de Zaelis a partir de seus corpos.

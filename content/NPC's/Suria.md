@@ -1,0 +1,1 @@
+Ladina/Batedora Tieferina do clã Oceanus do Deserto das Cinzas.  Guiou o grupo pelo deserto até a entrada da cidade de Narubia.

@@ -5,3 +5,5 @@ Especialistas em magia arcana e extraplanar
 Vivem isolados em outro plano com acesso à floresta de Yasvelin
 
 Sociedade com castas decidida no nascimento pela linhagem. Não existe ascensão social.
+
+Sevos dos senhores da ordem. 

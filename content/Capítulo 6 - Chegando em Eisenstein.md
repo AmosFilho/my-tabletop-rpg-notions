@@ -1,0 +1,7 @@
+[[Tomé, Três Tons]]
+[[Bicário, Pena-Espada]]
+[[Ginelis, Chapéu de Bronze]]
+[[Olaf]]
+[[Vierna Rominic]]
+[[Matz]]
+[[Galoria Dontado]]

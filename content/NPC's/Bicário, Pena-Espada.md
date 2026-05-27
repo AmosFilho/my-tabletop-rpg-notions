@@ -1,2 +1,3 @@
 ![](https://i.imgur.com/yqI6uV1.png)
+
 Ex-pirata Chymera que trabalha fazendo conexões de rotas comerciais após ter sido preso por transportar carga roubada pra Eisenstein durante anos (O que ele ainda faz). Atualmente todos os piratas odeiam ele chamando-o de traidor. Tem problemas com bebida e mentiras.

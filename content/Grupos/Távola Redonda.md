@@ -1,4 +1,4 @@
-![](https://i.imgur.com/WSYfJ5H.jpg)
+![](https://th.bing.com/th/id/R.ee7d6307dab3eaa3469777fc2b42a7a5?rik=E34aW3bs9xyKJg&pid=ImgRaw&r=0)
 
 - Ordem Adamantina:
     

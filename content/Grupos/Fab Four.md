@@ -1,0 +1,1 @@
+Um grupo de aventureiros atrapalhado que salvam as pessoas e reclamam disso.
