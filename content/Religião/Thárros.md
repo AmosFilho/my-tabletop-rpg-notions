@@ -1,0 +1,1 @@
+![image](https://img.wattpad.com/cover/401341459-288-k467655.jpg)
