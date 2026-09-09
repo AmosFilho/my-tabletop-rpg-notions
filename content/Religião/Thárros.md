@@ -1,4 +1,5 @@
 ![image](https://img.wattpad.com/cover/401341459-288-k467655.jpg)
+
 **Domínios:** Coragem, Batalha, Vitória e Honra 
 
 **Símbolo:** Duas braçadeiras metálicas se cruzando em X. 
